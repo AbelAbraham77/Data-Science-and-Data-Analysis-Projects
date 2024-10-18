@@ -33,7 +33,7 @@ Some of the online resources I am using for these projects include:
 
 ## Contact
 
-Feel free to reach out to me if you have any questions, suggestions, or collaboration ideas! You can contact me through [Your Email] or connect with me on [LinkedIn Profile].
+Feel free to reach out to me if you have any questions, suggestions, or collaboration ideas! You can contact me through abelabraham.work@outlook.com or connect with me on my LinkedIn.
 
 ---
 
